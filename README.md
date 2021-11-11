@@ -4,4 +4,4 @@ I am Max Caley, a first year student at Staffordshire University, studying Compu
 
 Twitter - https://twitter.com/kawasaki_ki
 
-LinkedIn - https://www.linkedin.com/in/max-caley-7b73b4224/
+LinkedIn - https://www.linkedin.com/in/max-caley-000/
